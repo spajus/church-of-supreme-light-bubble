@@ -29,7 +29,7 @@ In the beginning there was The Big Bang, which spawned the known Universe.
 The Big Bang was produced by Supreme Light Bubble, which imploded into an
 infinitely dense spot, that later exploded into the world we live in today.
 
-## For how long did Supreme Light Bubble exist before the big bang?
+## For how long did Supreme Light Bubble exist before The Big Bang?
 
 Time was not a concept back then, so there cannot be an answer. Time starts
 with 0, when Supreme Light Bubble have triggered The Big Bang. Before that
@@ -65,7 +65,7 @@ your heart's contents to it. You can ask for guidance, support or forgiveness.
 
 Your mind is the limit.
 
-## Is there Heaven or Hell in this relgion?
+## Is there Heaven or Hell in this religion?
 
 No, there is not?
 
