@@ -67,7 +67,7 @@ Your mind is the limit.
 
 ## Is there Heaven or Hell in this religion?
 
-No, there is not?
+No, there is not.
 
 ## What happens when I die?
 
