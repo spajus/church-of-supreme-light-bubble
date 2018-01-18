@@ -50,7 +50,7 @@ Big Bang. But it cannot be disproved either.
 
 Yes, you can.
 
-## Will Supreme Light Bubble hear my prairs?
+## Will Supreme Light Bubble hear my prayers?
 
 It will not, because it doesn't exist anymore.
 
