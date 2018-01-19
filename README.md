@@ -32,18 +32,18 @@ infinitely dense spot, that later expanded into the world we live in today.
 ## For how long did Supreme Light Bubble exist before The Big Bang?
 
 Time was not a concept back then, so there cannot be an answer. Time starts
-with 0, when Supreme Light Bubble have triggered The Big Bang. Before that
-there was nothing, but the Supreme Light Bubble itself, without time.
+with 0, when Supreme Light Bubble triggered The Big Bang. Before that
+there was nothing but the Supreme Light Bubble itself, without time.
 
 ## Does Supreme Light Bubble still exist?
 
-No, it sacrificed itself to start The Universe. Supreme Light Bubble does not
-exist anymore. That's why there is no evidence of it anywhere.
+No. It sacrificed itself to start The Universe. Supreme Light Bubble does not
+exist anymore; that's why there is no evidence of it anywhere.
 
 ## How can you prove Supreme Light Bubble existed?
 
 There is no proof, because nobody figured out what really happened before The
-Big Bang. But it cannot be disproved either.
+Big Bang. But it cannot be disproven either.
 
 
 ## Can you pray to Supreme Light Bubble?
@@ -56,12 +56,16 @@ It will not, because it doesn't exist anymore.
 
 ## What is the point of praying to Supreme Light Bubble then?
 
-Because praying helps you relax mentally. Think of it as meditation.
+Because praying helps you relax mentally, and to better visualize and 
+express the things that are concerning you. Think of it as meditation.
 
 ## How do I pray to Supreme Light Bubble?
 
 It's up to you. You can picture it in your mind as a bubble of light, and spill
 your heart's contents to it. You can ask for guidance, support or forgiveness.
+You can hash problems out with it (recognizing, of course, that you are working 
+things out for yourself, and Supreme Light Bubble is acting as an internalized,
+idealized foil).
 
 Your mind is the limit.
 
