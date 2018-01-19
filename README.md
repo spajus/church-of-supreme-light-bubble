@@ -21,7 +21,7 @@ by Dale Carnegie for more arguments for having a religion.
 2. It doesn't claim anything that is against scientific facts.
 3. It is compatible with people who cannot believe in any popular religion.
 4. It does not have saints, religious figures, priests, popes, or any hierarchy whatsoever.
-5. It doesn't try to get to your money.
+5. It doesn't depend on donations.
 
 ## What does the religion say?
 
@@ -56,14 +56,14 @@ It will not, because it doesn't exist anymore.
 
 ## What is the point of praying to Supreme Light Bubble then?
 
-Because praying helps you relax mentally, and to better visualize and 
+Because praying helps you relax mentally, and to better visualize and
 express the things that are concerning you. Think of it as meditation.
 
 ## How do I pray to Supreme Light Bubble?
 
 It's up to you. You can picture it in your mind as a bubble of light, and spill
 your heart's contents to it. You can ask for guidance, support or forgiveness.
-You can hash problems out with it (recognizing, of course, that you are working 
+You can hash problems out with it (recognizing, of course, that you are working
 things out for yourself, and Supreme Light Bubble is acting as an internalized,
 idealized foil).
 
