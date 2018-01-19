@@ -26,14 +26,12 @@ by Dale Carnegie for more arguments for having a religion.
 ## What does the religion say?
 
 In the beginning there was The Big Bang, which spawned the known Universe.
-The Big Bang was produced by Supreme Light Bubble, which imploded into an
-infinitely dense spot, that later exploded into the world we live in today.
+The Big Bang was produced by Supreme Light Bubble, which contracted into an
+infinitely dense spot, that later expanded into the world we live in today.
 
 ## For how long did Supreme Light Bubble exist before The Big Bang?
 
-Time was not a concept back then, so there cannot be an answer. Time starts
-with 0, when Supreme Light Bubble have triggered The Big Bang. Before that
-there was nothing, but the Supreme Light Bubble itself, without time.
+Time was not a concept back then, so there cannot be an answer. Time starts with 0, when Supreme Light Bubble have triggered The Big Bang. Before that there was nothing, but the Supreme Light Bubble itself, without time.
 
 ## Does Supreme Light Bubble still exist?
 
