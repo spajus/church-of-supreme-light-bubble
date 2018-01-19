@@ -31,7 +31,9 @@ infinitely dense spot, that later expanded into the world we live in today.
 
 ## For how long did Supreme Light Bubble exist before The Big Bang?
 
-Time was not a concept back then, so there cannot be an answer. Time starts with 0, when Supreme Light Bubble have triggered The Big Bang. Before that there was nothing, but the Supreme Light Bubble itself, without time.
+Time was not a concept back then, so there cannot be an answer. Time starts
+with 0, when Supreme Light Bubble have triggered The Big Bang. Before that
+there was nothing, but the Supreme Light Bubble itself, without time.
 
 ## Does Supreme Light Bubble still exist?
 
