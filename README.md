@@ -45,7 +45,6 @@ exist anymore; that's why there is no evidence of it anywhere.
 There is no proof, because nobody figured out what really happened before The
 Big Bang. But it cannot be disproven either.
 
-
 ## Can you pray to Supreme Light Bubble?
 
 Yes, you can.
@@ -68,6 +67,15 @@ things out for yourself, and Supreme Light Bubble is acting as an internalized,
 idealized foil).
 
 Your mind is the limit.
+
+## Is there a hand sign for Supreme Light Bubble?
+
+Yes, there is. You have to put your fingers in a circle and hold it in front of
+you, like this:
+
+![supreme-light-bubble-sign](https://user-images.githubusercontent.com/70706/35227020-96bcee76-ff95-11e7-83b9-8a406f2d0a9f.png)
+
+You should say "All hail Supreme Light Bubble" when displaying this sign.
 
 ## Is there Heaven or Hell in this religion?
 
