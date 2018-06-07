@@ -87,7 +87,7 @@ You become one with Supreme Light Bubble, for eternity.
 
 ## Is this a real religion?
 
-Yes, it is. Just like Christianity, or Capitalism.
+Yes, it is. Just like Christianity, or [Capitalism](https://www.counterpunch.org/2015/05/08/capitalism-is-the-wests-dominant-religion/).
 
 ## How can I contribute to this religion?
 
