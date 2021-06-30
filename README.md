@@ -92,10 +92,3 @@ Yes, it is. Just like Christianity, or [Capitalism](https://www.counterpunch.org
 ## How can I contribute to this religion?
 
 Fork the repo and make a Pull Request.
-
-## Donations
-
-If you would like to buy me a beer for giving you this awesome religion:
-
-- BTC: 3QiZEHQtS1ZQ2MGyPAzWPE4Q6Au88kg8vw
-- ETH: 0xD01fE9Aa79Cbc2a898446550B87b1208d77b2c5a
